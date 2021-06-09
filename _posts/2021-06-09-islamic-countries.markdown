@@ -7,13 +7,13 @@ image: "img/mozque.jpg"
 date:   2021-06-02 19:10:12
 ---
 
-``` 
-There is not such a perfect culture or a culture better than others. Remember: that the fact you arrive in a country does not mean all their habitants have to change their costumes to make you feel good and welcome. 
-```
+ 
+There is not such a perfect culture or a culture better than others. The fact you arrive in a country does not mean all their habitants have to change their costumes to make you feel good and welcome. 
 
-Islamic countries are not an exception. However, they have a particular thing that makes us think twice before visiting them: their religion and customs have been vandalized with a  lot of bad propaganda spreaded in Hollywood movies. That bad propaganda is just bad propaganda, most of the time is not like that, the key is understanding the culture before traveling, reading about or asking for information.
 
-After visiting some Islamic countries, I would like to provide you my *11 recommendations*  that according to my experience, will help you to avoid common mistakes and misunderstandings when you travel as a woman solo to Islamic countries.
+Islamic countries are not an exception. However, they have a particular thing that makes us think twice before visiting them: their religion and customs have been vandalized with bad propaganda spreaded in Hollywood movies. That bad propaganda is just bad propaganda, most of the time is not like that. The key is understanding the culture before traveling, reading about or asking for information.
+
+After visiting some Islamic countries, I have collected a list of *12 recommendations*  that according to my experience, will help you to avoid common mistakes and misunderstandings when you travel as a woman solo to Islamic countries.
 
 **1. Be prepared about what they think of western woman**
 Before I start, I want to clarify that this is something general. Not all the men in the Islamic countries think like this, I'm making a general reference, of course there are exceptions and since the culture has become more global, some of them also understand the basics of western cultures.
@@ -24,11 +24,11 @@ Not only happened to me, but also to other girls I know.  Just look at them with
 
 
 **2. Read about the country**
-Not all the islamic countries are the same. Some of them are more extreme than others. Not in all islamic countries women have to cover totally and walk behind men, it depends on the country. That’s why it is very important to read about the country, watch videos or ask, maybe the sister of the wife of your friend has  traveled there. Sometimes is better to avoid traveling as a woman alone to some islamic countries. Check if it is your case.
+Not all the islamic countries are the same. Some are more extreme than others and not in all islamic countries women are forced to cover totally and walk behind men. That’s why it is very important to read about the country, watch videos or ask, maybe the sister of the wife of your friend has traveled there. Sometimes is better to avoid traveling as a woman alone to some islamic countries. Check if it is your case.
 
 
 **3. Do not wear suggestive clothes**
-Apply to *ALL* Islamic countries but is more severe in ones than others.  Avoid singlets, shorts, dresses shows much skin. What can you wear? Well, blouses with long or short slaves, skirts and dresses that cover your knees, pants, jeans, leggings. If it is too hot and you wanna wear singlets, put on a thin jacket, t-shirt or pashmina. 
+Apply to *ALL* Islamic countries but is more severe in ones than others. Avoid singlets, shorts, dresses shows much skin. What can you wear? Well, blouses with long or short slaves, skirts and dresses that cover your knees, pants, jeans, leggings. If it is too hot and you wanna wear singlets, put on a thin jacket, t-shirt or pashmina. 
 
 In some islamic countries it is not necessary to cover your head. On the other hand, in others (specially in those located in the middle east) is better if you not only cover your head but also cover your legs totally. 
 
@@ -36,15 +36,15 @@ In some islamic countries it is not necessary to cover your head. On the other h
 
 
 **4. Avoid having eye contact or physical contact with men**
-For Latin culture physical contact normal. We embrace, kiss and touch very much. Usually we say hello and goodbye with a kiss (Latinamerica), two (Spain, Italy, Portugal) or even three (France). Those gestures will be misunderstood by most of the people in slamic countries. Checking hands is enough to say hello and goodbye. Trust me. 
+For Latin culture physical contact normal. We embrace, kiss, and touch very much. Usually we say hello and goodbye with a kiss (Latinamerica), two (Spain, Italy, Portugal) or even three (France). Those gestures will be misunderstood by most of the people in slamic countries. Checking hands is enough to say hello and goodbye.  
 
-After a week in *Aserbaján*, a couple of female friends and I noticed that men were always flirting with us.  Waiters, the guys in the hotel, the taxi drivers… When we were back in out home country, we realized (after reading some posts and articles in Internet) that eye contact is an open invitation to flirt, is like *“Hey, I am free and open, you can come, let's drink a coffee and … see what happen"* Yes sister, we were the flirter girls in town!. 
+``` 
+After a week in *Aserbaján*, a couple of female friends and I noticed that men were always flirting with us.  Waiters, the guys in the hotel, the taxi drivers… When we were back in out home country, we realized (after reading some posts and articles in Internet) that eye contact is an open invitation to flirt, is like *“Hey, I am free and open, you can come, let's drink a coffee and … see what happen"*.  Yes sister, we were the flirter girls in town!. 
+```
 
 
 **5. Be gentle but avoid excess**
-Thank you, it was very nice of you, it was very kind of you, it was delicious... Saying those things is Ok, however, and this is strictly connected with the fourth recommendation, avoid exces.  
-
-Usually, I am extra kind with people working in general services however, I have found that smiling too much, talking too much, asking too much for recommendations in Islamic countries is misunderstood mostly.
+Thank you, it was very nice of you, it was very kind of you, it was delicious... Saying those things is Ok, however, and this is strictly connected with the fourth recommendation, avoid exces.  Usually, I am extra kind with people working in general services however, I have found that smiling too much, talking too much, asking too much for recommendations in Islamic countries is misunderstood mostly.
 
 
 **6. If they say they pay, let them pay**
