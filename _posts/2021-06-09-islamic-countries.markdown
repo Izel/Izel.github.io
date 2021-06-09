@@ -1,13 +1,12 @@
 ---
-title:  "Traveling to Islamic countries: General recommendations"
+title:  "Women traveling solo to Islamic countries: General recommendations"
 subtitle: "Avoid common mistakes and misunderstandings"
-author: "Izel"
+author: "shewalks"
 avatar: "img/authors/wferr.png"
-image: "img/a.jpg"
+image: "img/mozque.jpg"
 date:   2021-06-02 19:10:12
 ---
 
-# General recommendations for women traveling solo to Islamic countries.
 *Follow these recommendations and you will avoid the most common mistakes and misunderstandings.*
 
 There is not such a perfect culture or a culture better than others. Remember that the fact you arrive in a country does not mean all their habitants have to change their costumes to make you feel good and welcome. 
